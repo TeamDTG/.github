@@ -1,1 +1,1 @@
-welcome to SIOD, Stupid Idea Of dttric or TeamDTG (main name)
+welcome to SIOD, stupid idea of dttric or TeamDTG (main name)
